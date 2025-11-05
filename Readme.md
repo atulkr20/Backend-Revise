@@ -1,1 +1,1 @@
-Revising my Backend concepta with Hitesh choudhary sir
+Revising my Backend concepts with Hitesh choudhary sir
